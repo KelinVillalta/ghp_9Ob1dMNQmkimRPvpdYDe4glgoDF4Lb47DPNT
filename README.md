@@ -1,0 +1,2 @@
+# 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
+tarea1.2
